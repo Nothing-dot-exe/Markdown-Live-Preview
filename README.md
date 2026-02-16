@@ -84,3 +84,4 @@
 ## ⭐ Support  
 Star it 🌟 |
  Share it 💬  | Improve it 🧠  
+ free and ready to use⚡
